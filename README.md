@@ -1,4 +1,4 @@
-## Hi from Syed 👋
+## Hi from Syed! 👋
 
 **👨🏽‍💻 Cybersecurity Researcher and Engineer**
 

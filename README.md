@@ -6,4 +6,4 @@
 
 **🚀 Cyber Maverick | 🎮 Gaming Enthusiast | 👨🏽‍🔬 Tech Explorer**
 
-***Unleashing tech wonders, one secure byte at a time! 💾🔧***
+***Unleashing tech wonders, one secure byte at a time! 💾🔧⌨️***
